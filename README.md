@@ -4,6 +4,8 @@ _Our alters put System host, System, Sys, S4S, System 4 Sure, or System for Sure
 
   Hi. We are System for Sure. We are a system of 190+ alters. Lucky is our host. We are 22 bodily, and collectively follow she/they, but our pronouns and ages differ with alters. All alters who join the 18+ server are of age.
 
+  We are autistic. Aside from dissociative identity disorder, we have attention deficit hyperactivity disorder, borderline personality disorder, obsessive compulsive disorder, post traumatic stress disorder and c-PTSD.
+
   We do not accept friend requests. Regardless, you are welcome to chat with us. If we are in Away status, we may not read chat. If we are in Busy status, we do not want to be spoken to.
 
   Any of our alters who accept Cuddles and Hiding have added C+H to their ponies' name. Otherwise, please do not cuddle or hide with us.
